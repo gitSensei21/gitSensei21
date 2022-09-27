@@ -1,4 +1,4 @@
-### Hi, I'm Nozimbek <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width='27px'></img>
+### Hi, I'm Sherzod <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width='27px'></img>
 <br/>
 
 ### Languages and tools I work with:
